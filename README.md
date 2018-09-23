@@ -1,7 +1,7 @@
 
 ## Written Assignment
 ### Strengths
-
+> What are the strengths and weakness of your apoken English? Write an analysis of your spoken English and work out a Weekly Study Plan
 - My voice is not too small when I speaking English.At least others can hear that I'm talking about something.
 
 ### Weakness
